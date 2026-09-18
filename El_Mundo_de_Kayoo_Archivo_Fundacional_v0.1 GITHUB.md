@@ -1902,4 +1902,163 @@ Siempre terminé construyendo el mío.
 Yo, casi sin entender por qué, decidí no entrar.  
 Recién ahora creo empezar a ordenar internamente la idea de que ambas decisiones también construyeron este edificio... o este mundo, o como quieras llamarlo.**
 
+RECUPERANDO INFO QUE NO INCLUI
+son cosas sueltas un dia a mediados de un agosto
+aqui van, sin orden... sucias y desprolijas 
+
+Hubo una época en que yo no me preguntaba solamente qué iba a hacer con mi vida.
+
+También me preguntaba con quién iba a compartirla.
+
+Era una pregunta que volvía una y otra vez, mientras miraba por la ventana del colectivo o mientras caminaba solo.
+
+¿Con quién me voy a casar?
+
+No era una fantasía romántica.
+
+Era una búsqueda.
+
+Cuando hice el curso de Control Mental apareció una imagen que nunca pude olvidar.
+
+En uno de los ejercicios se presentaba una mujer.
+
+Yo sentía que, de alguna manera, estaba relacionada con mi futuro.
+
+Pero nunca pude verle el rostro.
+
+Era como una fotografía desenfocada.
+
+Un *blur*.
+
+Sabía algunas cosas.
+
+Sabía, por ejemplo, que no tenía los ojos claros.
+
+Nada más.
+
+Durante muchos años pensé que esa mujer podía ser la siguiente.
+
+Y después la siguiente.
+
+Y después otra.
+
+Con el tiempo dejé de buscar que alguien coincidiera con aquella imagen.
+
+Hoy creo que esa visión hablaba menos de una persona que de mi propia necesidad de encontrar un lugar donde sentir que había llegado.
+
+Tal vez nunca estuvo anunciando un rostro.
+
+Tal vez estaba describiendo una búsqueda.
+
+
+Y OTRA MAS
+"Hace poco volví a escuchar algunas canciones de Banda de Placard. Hoy las mezclaría distinto. Hay demasiada reverberación. La voz parece venir desde el fondo de un pasillo. Me hizo sonreír. Ya no pienso igual que aquel músico que las grabó. Pero no las tocaría. Ese era yo. Si las cambiara, estaría corrigiendo una fotografía de mi propia historia.
+
+Tal vez con este libro ocurra lo mismo.
+
+Algún día lo voy a abrir y voy a encontrar frases que hoy escribiría mejor. Ideas que desarrollaría distinto. Palabras que cambiaría.
+
+Y espero tener la lucidez de no hacerlo.
+
+Porque el libro no tiene que representar al Nelson que siga viviendo dentro de diez años.
+
+Tiene que representar al Nelson que logró terminarlo.
+
+Recién cuando lo tenga impreso entre las manos voy a descubrir sus errores.
+
+Y también voy a descubrir que, por primera vez, una parte de mi vida dejó de ser un proyecto para convertirse en una obra."
+
+
+Y OTRA MAS
+"Cuando empecé a escribir estas páginas, el paisaje era mucho más oscuro.
+
+No pensaba en publicar un libro.
+
+Pensaba en dejar un rastro.
+
+Sentía que mi vida se estaba cerrando. No porque quisiera terminarla; eso nunca estuvo en mis planes. Siempre supe que, si alguna vez llegaba a un lugar demasiado peligroso, iba a pedir ayuda. Era otra cosa.
+
+Tenía la sensación de que el tiempo podía terminar antes de que yo alcanzara a contar quién había sido.
+
+Por eso empecé a escribir.
+
+Quería que Xavier y Erika supieran cómo pensaba su padre. No solamente lo que hizo, sino por qué hizo lo que hizo.
+
+Hoy, mientras escribo estas líneas, algo cambió.
+
+Quizás porque el departamento empezó a moverse. Quizás porque aparecieron visitas. Quizás porque, después de mucho tiempo, vuelvo a sentir que algunas puertas... o mejor dicho, algunas habitaciones... todavía pueden abrirse.
+
+Ya no escribo solamente por si un día falto.
+
+Escribo porque descubrí que todavía tengo ganas de seguir construyendo."
+
+
+Y OTRA MAS
+### Cuando este libro dejó de ser una despedida
+
+Cuando empecé a escribir estas páginas no estaba bien.
+
+No era una tristeza pasajera. Era esa oscuridad que alguna vez ya conocí.
+
+Conozco la depresión. Estuve medicado. Conozco las ideaciones. Sé cómo empiezan esos pensamientos cuando uno siente que ya no encuentra salida.
+
+Nunca crucé esa última línea.
+
+No por miedo a morir.
+
+Sino porque siempre aparecía una imagen que me detenía.
+
+Pensaba en mis hijos. Pensaba en alguien teniendo que hacerse cargo del desastre que yo dejara. No quería regalarle semejante dolor a nadie.
+
+Entonces hacía lo único que sabía hacer.
+
+Pelear.
+
+Con voluntad.
+
+Con disciplina.
+
+Un día más.
+
+Después otro.
+
+Y otro.
+
+Cuando comenzó este libro yo realmente sentía que podía no llegar muy lejos. No porque estuviera decidido a irme, sino porque imaginaba que cualquier mañana podía despertarme enfermo... o simplemente no despertarme.
+
+Por eso quería dejar algo.
+
+Quería que mis hijos supieran quién había sido realmente su padre.
+
+No el que aparecía en las reuniones familiares.
+
+No el músico.
+
+No el programador.
+
+No el hombre que resolvía problemas.
+
+Quería dejarles el mapa completo.
+
+Con el paso de las semanas algo empezó a cambiar.
+
+Tal vez porque el departamento empezó a recibir visitas.
+
+Tal vez porque algunas cosas comenzaron a moverse.
+
+Tal vez porque escribir también ordena.
+
+No desaparecieron las batallas.
+
+Siguen estando.
+
+Pero ya no siento que este libro sea una despedida.
+
+Empiezo a sentir que puede ser un comienzo.
+
+Quizás el mayor regalo que terminó haciéndome este edificio no sea dejarles mi historia a mis hijos.
+
+Quizás sea descubrir, mientras la escribía, que todavía me quedan habitaciones por construir.
+
+
 
